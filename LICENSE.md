@@ -1,4 +1,4 @@
-
+Get the ultimate Bartender for macOS helper with Bartender for macOS elite Helper: disk-analysis & CPU-monitoring. Featuring disk-analysis and CPU-monitoring, it's the best choice
 
 
 
